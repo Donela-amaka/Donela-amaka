@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on real life projects.
 - 📫 How to reach me: Email; donelamaka@gmail.com
                       Linkedin; https://www.linkedin.com/in/nwamaka-okeke
-                      Github; Donela-amaka
+                      Github; @Donela-amaka
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: When I am not diving into data, you will likely find me sewing! I enjoy creating custom pieces and experimenting with different fabrics.
   Much like data analysis, sewing requires precision, creativity and a keen eye for detail- it's all about stitching things together to create something beautiful.
